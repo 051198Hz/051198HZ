@@ -1,5 +1,3 @@
-# Hi there 👋
-
 ### 📮Contact
 - gms6240@gmail.com
 
