@@ -1,7 +1,7 @@
 # Hi there 👋
 
 ### 📮Contact
-- gms6240@gmail.com
+- gms6240@gmail.com
 
 ### ✍️ Blog
 - [Tistory Blog](https://bpeeper.tistory.com/)
