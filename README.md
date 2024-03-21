@@ -1,5 +1,5 @@
 ### 📮Contact
-- gms6240@gmail.com
+- peeper_o_o@icloud.com
 
 ### ✍️ Blog
 - [Tistory Blog](https://bpeeper.tistory.com/)
